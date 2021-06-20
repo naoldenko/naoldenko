@@ -3,7 +3,7 @@
 My name is Naol! I am an imaginative 🦄 designer that aims to develop stunning ✨ and research-backed 🔬 designs! Before breaking into the design world, I was a previous founder that founded two startups within the fitness 🏋🏽 and mental health 🧠 realms. Although unsuccessful, I've learned invaluable lessons from starting these two projects, and built the necessary skills to work in startup and corporate environments!
 
 ## 💬 Ask Me About:
-Music & Marvel! When not designing I like to produce [beats](soundcloud.com/naolmusic) 🎶 and watch Marvel 🦸🏽‍♂️ shows/movies!
+Music & Marvel! When not designing, I like to produce [beats](soundcloud.com/naolmusic) 🎶 and watch Marvel 🦸🏽‍♂️ shows/movies!
 
 ## 📫 How to Reach Me:
 You can find me on [Twitter](twitter.com/naoldenko), [Instagram](instagram.com/naolmdenko), and [LinkedIn](linkedin.com/in/naol)!
