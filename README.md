@@ -9,7 +9,7 @@ Music & Marvel! When not designing, I like to produce [beats](https://soundcloud
 You can find me on [Twitter](https://twitter.com/naoldenko), [Instagram](https://instagram.com/naolmdenko), and [LinkedIn](https://linkedin.com/in/naol)!
 
 ## ⚡ Fun Fact: 
-I won two [football](https://www.youtube.com/watch?v=d7fyoVMX4PU) championships in the same year! (highschool and rep team)
+I won two [football](https://www.youtube.com/watch?v=d7fyoVMX4PU) championships in the same year! (high school and rep team)
 
 
 <!--
