@@ -1,5 +1,5 @@
 ### What's Up! ✌🏽
-- 🔭 I’m currently working on ...
+- 🔭 I’m currently working on Sereen - Mental Health App for Musicians
 - 🌱 I’m currently learning Flutter & German
 - 💬 Ask me about: Music, Sports, Creative Writing
 - 📖 What I read: Philosophy (Read Aurelius!), Theology, Personal Development, Autobiographies
