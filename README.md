@@ -1,5 +1,5 @@
 ### What's Up! ✌🏽
-- 🔭 I’m currently working on ContentilityAI - Repurposing Content App for Creators & Entrepreneurs
+- 🔭 I’m currently working on Sereen - Peer-to-Peer Support Network App for Musicians
 - 🌱 I’m currently learning Flutter, German & Italian
 - 💬 Ask me about: Music, Sports, Creative Writing
 - 📖 What I read: Theology, Philosophy (Read Aurelius!), Personal Development, Autobiographies
