@@ -1,5 +1,5 @@
 ### What's Up! ✌🏽
-- 🔭 I’m currently working on Sereen - Peer-to-Peer Support Network App for Musicians
+- 🔭 I’m currently working on Chip - Creator Wellness App
 - 🌱 I’m currently learning Flutter, German & Italian
 - 💬 Ask me about: Music, Sports, Creative Writing
 - 📖 What I read: Theology, Philosophy (Read Aurelius!), Entrepreneurship, Personal Development, Autobiographies
