@@ -1,5 +1,5 @@
 ### What's Up! ✌🏽
-- 🔭 I’m currently working on CriticAI - Music Reviewer
+- 🔭 I’m currently working on CriticAI - AI-Powered Music Analysis
 - 🌱 I’m currently learning Flutter, German & Italian
 - 💬 Ask me about: Music, Sports, Creative Writing
 - 📖 What I read: Theology, Philosophy (Read Aurelius!), Entrepreneurship, Personal Development, Autobiographies
