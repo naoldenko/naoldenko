@@ -1,5 +1,5 @@
 ### What's Up! ✌🏽
-- 🔭 I’m currently working on Chip - Founder-Focused Companion for Entrepreneurs
+- 🔭 I’m currently working on CriticAI - AI Music Reviewer
 - 🌱 I’m currently learning Flutter, German & Italian
 - 💬 Ask me about: Music, Sports, Creative Writing
 - 📖 What I read: Theology, Philosophy (Read Aurelius!), Entrepreneurship, Personal Development, Autobiographies
